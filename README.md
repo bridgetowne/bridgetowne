@@ -1,7 +1,7 @@
 - 👋 Hi, I’m the developer @bridgetowne
 - 👀 I’m interested in making games and apps
 - 🌱 I’m currently learning web3
-- 💞️ I’m looking to collaborate on game and apps design and features
+- 💞️ I’m looking to collaborate on my games and apps design and features
 - 📫 How to reach me twitter and telegram channel
 - 😄 Pronouns: Overlord
 - ⚡ Fun fact: I am busy most of the time
